@@ -5,4 +5,4 @@ Most of the time, we have our own end goal. Timelines of how we want our lives t
 
 ## Inspiration
 
-I've always been a chronic overthinker, over analyzing every situation to only find the best solution through everything. I've started to realize that the best way to live is by simply living, because I can never recover possible choices from the past, only focus on what new ones can create my future.
+I've always been a chronic overthinker, overanalyzing every situation to only find the best solution through everything. I've started to realize that the best way to live is by simply living, because I can never recover possible choices from the past, only focus on what new ones can create my future.
